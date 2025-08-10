@@ -1,4 +1,4 @@
-## Hi there, Myself Subhangkar a cybersecurity enthusiast
+## Hi there, Myself Subhangkar Barui a cybersecurity enthusiast
 
 # 💫 About Me:
 🔭 I’m currently working on **Minor projects**  
